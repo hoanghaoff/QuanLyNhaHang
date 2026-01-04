@@ -7,6 +7,7 @@ Học kỳ **HK 1B – Năm học 2025 – 2026**
 
 ## Thông tin:
 **Trường Đại học Công nghệ TP.HCM – HUTECH**
+
 **Lớp:** 23DTHA2  
 
 ---
